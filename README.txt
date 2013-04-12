@@ -6,3 +6,4 @@ against the evil Galactic
 Empire.
 
 During the battle, Rebel
+spies managed to steal
