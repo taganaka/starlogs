@@ -16,3 +16,4 @@ planet.
 
 Pursued by the Empire's
 sinister agents, Princess
+Leia races home aboard her
