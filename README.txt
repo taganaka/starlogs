@@ -5,3 +5,4 @@ won their first victory
 against the evil Galactic
 Empire.
 
+During the battle, Rebel
